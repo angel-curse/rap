@@ -1,5 +1,5 @@
 # rap
-haey angel-hax cracking fucking now<br>
-(へーい あんじぇるはっくす くらっきんぐ ふぁっきんぐなう)<br>
+haey angel-curse cracking fucking now<br>
+(へーい あんじぇるかーす くらっきんぐ ふぁっきんぐなう)<br>
 raiding your server destroy your glass heart<br>
 (れいでぃんぐ ゆあ さーばー ですとろい ゆあ がらすはーと)<br>
