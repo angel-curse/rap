@@ -1,5 +1,5 @@
 # rap
 haey angel-curse cracking fucking now<br>
-(へーい あんじぇるかーす くらっきんぐ ふぁっきんぐなう)<br>
+japan translation へーい 天使の呪い 今すぐクラッキング<br>
 raiding your server destroy your glass heart<br>
-(れいでぃんぐ ゆあ さーばー ですとろい ゆあ がらすはーと)<br>
+japan translation 貴方のサーバーを襲撃して貴方のガラスのハートを破壊する<br>
