@@ -1,6 +1,5 @@
 # rap
 haey angel-curse cracking fucking now<br>
-
 raiding your server destroy your glass heart<br>
 
 
